@@ -24,7 +24,7 @@
 ### 🧠 About Me
 
 📌 I’m open to freelance projects and developer opportunities.  
-📫 Want to work together? Reach me via [mahandev.ir](https://mahandev.ir)
+📫 Want to work together? Reach me via [mahanmotallebi.ir](https://google.com)
 
 ---
 
