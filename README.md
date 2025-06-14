@@ -28,4 +28,10 @@
 
 ---
 
+###  Connect
+
+![](https://skillicons.dev/icons?i=linkedin)
+
+---
+
 ⭐️ *Thanks for visiting my profile!*  
